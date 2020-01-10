@@ -1,7 +1,7 @@
 # Le voyageur
 Un matin,
 
-Un voyageur se promenait
+Le long de la rivière,
 
 Sous la pluie et les eclairs
 
